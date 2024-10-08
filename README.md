@@ -3,7 +3,7 @@
 ![](https://i.postimg.cc/TYTzcdWQ/23164646-CVUv3-Lc-A.png)
 ![](https://cdn.readawrite.com/articles/11816/11815210/thumbnail/large.gif?3)
  ![pearls](https://i.postimg.cc/TYTzcdWQ/23164646-CVUv3-Lc-A.png)
-![white umbrella](https://i.postimg.cc/5N60fWx4/tumblr-74cfa67e1c50e99210295aed6602d404-ab29c344-75.webp)*“₊ ⊹**m**y lo**v**e..*yk i co*u*ld ***NEVER*** hurt ***you*** *..ᥫ᭡”* 
+![white umbrella](https://i.postimg.cc/5N60fWx4/tumblr-74cfa67e1c50e99210295aed6602d404-ab29c344-75.webp)*“₊ ⊹**Do** you re**a**lly..*promise on th*a*t ***one*** ..B***abe?*** *..ᥫ᭡”* /mw @dustyyxx
 
 ***Vir***us ◜
 **T**o*z*h ![white bow](https://i.postimg.cc/28Gcwn4X/tumblr-0018ac2053c69abb00c067f033f75593-3c78e3fd-75.webp)
